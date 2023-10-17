@@ -1,1 +1,1 @@
-# charanyelala.github.io
+# charanyelala.com
